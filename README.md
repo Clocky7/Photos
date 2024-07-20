@@ -6,4 +6,3 @@
 ![1jpg](https://github.com/user-attachments/assets/a9c34513-1154-40d1-8fa8-370bcf22723a)
 ![真理部](https://github.com/user-attachments/assets/1265160c-52d0-4432-a3ea-c199b3469627)
 ![4](https://github.com/user-attachments/assets/762cb53b-923e-49f9-8fa8-9e8c875c96e9)
-
